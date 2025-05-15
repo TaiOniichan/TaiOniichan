@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TaiOniichan
+- 👋 Hi, I’m @DucTai
 - 👀 I’m interested in music instrument
 - 🌱 I’m currently learning Computer Science
 - 📫 How to reach me: My gmail: trongductai2005@gmail.com
